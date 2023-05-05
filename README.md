@@ -1,7 +1,6 @@
-###🤓
+🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓
 
-
-**Fabris1/Fabris1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Fabris1/Fabris1** is a Minecraft pro player e Main Fang XD
 
 Here are some ideas to get you started:
 
@@ -13,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me:Roblox ...
 - 😄 Pronouns:Obvio ...
 - ⚡ Fun fact:Bolas ...
-
+🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓🤓
